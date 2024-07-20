@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as Business Manager in Next Level Software<br><br>💬 You can ask me about any query related to app development or web development<br><br>📫 How to reach me mkhubaibrasheed@gmail.com
+🔭 I’m currently working as a Business Manager in Next Level Software<br><br>💬 You can ask me about any query related to app development or web development<br><br>📫 How to reach me at mkhubaibrasheed@gmail.com or visit my website [Next Level Software](https://nextlevelsoftwarepk.com/)
 
 
 ## 🌐 Socials:
